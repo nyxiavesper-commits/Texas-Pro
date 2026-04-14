@@ -1,2 +1,0 @@
-# Texas-Pro
-Unban WhatsApp
